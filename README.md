@@ -1,1 +1,1 @@
-# Smart_Faculty-_ecruitment_System-
+# Smart_Faculty-_Recruitment_System-
